@@ -39,7 +39,7 @@
 - I enjoy playing chess and participating in hackathons.
 
 ### 📫 How to reach me
-Feel free to reach out via [LinkedIn](https://www.linkedin.com/in/saurabhg06) or [email](mailto:saurabhg06@example.com). I'm always open to interesting conversations and collaboration opportunities!
+Feel free to reach out via [LinkedIn]([(https://www.linkedin.com/in/saurabh-ghatule-5126b0251/)]) or [email](mailto:saurabhmghatule@gmail.com). I'm always open to interesting conversations and collaboration opportunities!
 
 ---
 
